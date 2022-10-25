@@ -2,7 +2,7 @@
 
 💡 I'm interested in **Computer Science** and **Artificial Intelligence**
 <br>
-🎓 Now I'm studying at the **Ca' Foscari University** (Venice)
+🎓 Now I'm studying at **Ca' Foscari University** (Venice)
 
 -----
 
